@@ -1,0 +1,1 @@
+# patentes_baterias
